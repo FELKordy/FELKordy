@@ -1,5 +1,5 @@
 # 💫 About Me:
-looking for training and becoming a professional cybersecurity engineer and I m currently a computer engineer at aast trying to improve my github
+currently a computer engineer at aast trying to improve my software skills and become a cybersecurity engineer 💻🛜
 
 
 ## 🌐 Socials:
